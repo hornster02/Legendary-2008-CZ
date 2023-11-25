@@ -1,3 +1,3 @@
-2019-04
+2019-04, STEAM
 
-https://github.com/hornster02/Firefox-Three-Rows-Simple-Compact-Clean-CSS/raw/main/Legendary_2008_cestina.rar
+https://github.com/hornster02/Legendary-2008-CZ/raw/main/Legendary_2008_cestina.rar
