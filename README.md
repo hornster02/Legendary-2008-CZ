@@ -1,3 +1,3 @@
-2019-04, STEAM
+STEAM (2019-04)
 
-https://github.com/hornster02/Legendary-2008-CZ/raw/main/Legendary_2008_cestina.rar
+Velikost 23MB https://github.com/hornster02/Legendary-2008-CZ/raw/main/Legendary_2008_cestina.rar
